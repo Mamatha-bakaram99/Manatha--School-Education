@@ -1,1 +1,0 @@
-# Manatha--School-Education
